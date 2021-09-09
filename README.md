@@ -2,4 +2,4 @@
 
 i regret learning javascript but i love it 
 
-14 years experience for a entry lvl job
+8 years experience for a entry lvl job bruh
