@@ -2,6 +2,5 @@
 
 I currently know html/css/javascript and a some reactJS
 
-I regret learning javascript but i love it 
 
 8 years experience for a entry lvl job bruh
